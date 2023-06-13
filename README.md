@@ -3,4 +3,4 @@
 
 ### Penanaan Sifat Pancasila pada RPP dan Silabus Pembelajaran 
 
-#### Di tujikan untuk semua mapel
+#### Di tujukan untuk semua mapel
